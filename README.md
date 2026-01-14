@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AerisCode
 - 👀 I’m interested in Game Development
 - 🌱 I’m currently learning Basic Programming
-- 💞️ I’m looking to collaborate on Game Making
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me DM my emiail
 - 😄 Pronouns: He/Man
 - ⚡ Fun fact: I love comic, anime, and game
