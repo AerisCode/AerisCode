@@ -37,4 +37,4 @@ More projects will be added as part of my internship preparation.
 ------------------------------------------------------------------------------------------------------------------------------------------
 
 📫 **Let’s connect:**  
-- LinkedIn: https://linkedin.com/in/username
+- LinkedIn: https://linkedin.com/in/max-lelepory-0864bb293
